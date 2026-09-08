@@ -9,3 +9,4 @@
  คู่แข่งร่วมสาย
 🇰🇷 เกาหลีใต้ หล่น 2 อันดับ → อันดับ 27 ของโลก
 ติดตามข่าวสารกีฬาเพิ่มเติมได้ที่ https://2vlive.com
+<img width="512" height="640" alt="0908" src="https://github.com/user-attachments/assets/70324f78-330b-4304-8752-58fa1b70b9f5" />
